@@ -1,2 +1,1 @@
-
-![LinkedIn Cover Photo](https://github.com/zetoli-group/.github/assets/65465380/b18c1f56-4ad7-406c-97cb-2846afe25ff3)
+![logo-black](https://github.com/zetoli-group/.github/assets/65465380/a3dd8cd5-12a0-4ba8-8ad7-323f1ed3beb5)
