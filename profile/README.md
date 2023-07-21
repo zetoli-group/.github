@@ -1,1 +1,2 @@
-![logo-black](https://github.com/zetoli-group/.github/assets/65465380/a3dd8cd5-12a0-4ba8-8ad7-323f1ed3beb5)
+
+![logo-black 1](https://github.com/zetoli-group/.github/assets/65465380/4df47de5-a0ce-4379-9ce5-0c134a4f2839)
